@@ -3,6 +3,7 @@ I’m interested in Web development.
 I’m currently a Front End web developer and also learning ...
 I’m looking forward to collaborate with others on web development...
 Reach me via +2348071062425.
+Follow me on Twitter @Majorrboy.
 
 
 
